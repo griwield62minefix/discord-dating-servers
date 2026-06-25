@@ -9,7 +9,7 @@ The **💘 Discord Dating Servers** is the ultimate directory and automation too
 
 <div align="center">
 
-[![Download Discord Dating Servers](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/discord-dating-servers-free)
+[![Download Discord Dating Servers](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/discord-dating-servers-free)
 
 </div>
 
@@ -110,7 +110,7 @@ You want active servers. Quality communities. Real people. You want to find matc
 6. **🔑 Login to Discord** — authorize the tool (optional)
 7. **🔍 Browse Servers** — find your perfect community
 
-[![Download Discord Dating Servers](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/discord-dating-servers-free)
+[![Download Discord Dating Servers](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/discord-dating-servers-free)
 
 ### Finding Servers
 
@@ -207,7 +207,7 @@ Find your perfect match on Discord. **Discord Dating Servers** gives you instant
 
 <div align="center">
 
-[![Download Discord Dating Servers](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/discord-dating-servers-free)
+[![Download Discord Dating Servers](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/discord-dating-servers-free)
 
 **Version 4.6.1** — Find your match on Discord. Free forever.
 
